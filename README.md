@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @Budi
-- 🏫 I’m Study On Smkn 1 Cileungsi ...
-- 🚼 I'm 17 y.o Born In Tegal
+Cuma Script Bot Whatsapp Kalo Mau Pake Ya Pake Aja
