@@ -1,1 +1,1 @@
-<b><i>Cuma Script Bot Whatsapp Kalo Mau Pake Ya Pake Aja
+
